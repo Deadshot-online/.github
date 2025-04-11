@@ -2,6 +2,8 @@
 
 Are you ready to lock, aim, and fire in one of the most **epic multiplayer shooting games** online? **Deadshot.io Unblocked** brings fast-paced action, precise sniping, and **insane combat mechanics** to your browser – all for free!
 
+## <a href="https://izigames.net/">👉 Play Deadshot IO Unblocked 👈</a>
+
 ### 🎯 What is Deadshot.io?
 
 **Deadshot.io** is a **first-person sniper shooter** game that tests your aiming skills, reaction time, and strategic thinking. In this **blazing 3D combat arena**, you'll take down opponents from across the world in real time. Whether you're a stealthy **phantom sniper** or a fearless **combat warrior**, this game guarantees heart-pounding excitement!
